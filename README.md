@@ -5,3 +5,4 @@ I think I will talk the different among all the process models.
 
 * I know this picture is amazing, but I just draw it via Microsoft Paint.
 * I study all the model by myself.
+* Maybe I will sumerlize some day.
